@@ -1,0 +1,19 @@
+- 👋 Hi, I’m @LaKost87
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+
+<!---
+LaKost87/LaKost87 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+--- 
+ - ![ClipWindowsGIF](https://github.com/user-attachments/assets/936e4fb8-d5f3-4d88-9fb8-fee5fe542960)
+ #### Noch am Gucken  #### 
+---  
+ 
+
+ 
