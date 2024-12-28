@@ -8,6 +8,15 @@
   ####                                                ####
 
 
+  <!-- Reach Me nOw -->
+  How tO rEAch mE . .
+   - /w @LaKost87
+   -  /w Me
+    - / Discort . \Cooming Soon .
+     - } / { reQuest_ME.md
+     -  .  . 
+
+
 
 
 
